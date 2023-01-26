@@ -5,11 +5,79 @@ pubDate: 2023-01-23T12:42:16.798-05:00
 draft: false
 rssOnly: false
 ---
-[Todd Libby recently posted](https://notacult.social/@todd@a11y.info/109730522745173132) about the need for conference organizers to support those of us who don't want to drink. As someone who has been sober for 13+ years now, I agree whole heartedly with this sentiment. Sometimes it is difficult for people who don't regularly think about this to know how to have actionable ways of changing things though. So, I'm going to give you some tips. You're welcome.
+[Todd Libby recently posted](https://notacult.social/@todd@a11y.info/109730522745173132) about the need for conference organizers to support those of us who don't want to drink. As someone who has been sober for 13+ years now, I agree whole heartedly with this sentiment. Sometimes it is dteawtweaifficult for people who don't regularly think about this to know how to have actionable ways of changing things though. So, I'm going to give you some tips. You're welcome.
 
-## 1 - Alcohol is not the focus
+## 1 - Alcohol is not the focuaijafeoiwhfoaiwehfoiawhefiwa
 
-If your event centers around alcohol, you've already failed. I cannot save you if you decide a “KEG STAND AND BEER PONG/FLIP CUP COMPETITION” is an appropriate thing to have at a professional event. In fact, I might suggest you look into getting help. Anytime you make an event that focuses on drinking as the primary activity, you have excluded the following people:
+## efa
+
+## s
+
+awfeawfhwaepof
+
+waef'
+
+weahf
+
+paweih
+
+paweihf
+
+pwaef
+
+wepahgoi;wahgvnzs;oingaw
+
+egfj
+
+pawgn
+
+apwien
+
+
+
+
+
+
+
+
+
+![](/uploads/dory-funk-com.png)
+If your event centers around alcohol, you've already failed. I cannot save you if you decide a “KEG STAND AND BEER PONG/FLIP CUP COMPETITION”afwefawho
+
+afwe
+
+phpawifh]
+
+apweifh
+
+aihef
+
+piawfepiewahf
+
+phweap
+
+fhawpe
+
+hgfoawehgvo;znosingoawhe
+
+ahg
+
+pihzovinboiuehawogfhpoawhgi
+
+aegvhpahjg
+
+p2oij3
+
+p1j
+
+J@PO
+JO:QH(*!@HT(GHagj
+
+
+
+
+
+ is an appropriate thing to have at a professional event. In fact, I might suggest you look into getting help. Anytime you make an event that focuses on drinking as the primary activity, you have excluded the following people:
 
 - Recovering alcoholics (Hi.)
 - People who take medication that doesn't allow them to drink
@@ -74,10 +142,6 @@ This one is harder. If you can't make the craft sodas or the mocktails work out,
 ## Conclusion
 
 Y'all, I know It's tough being an event organizer. I get it. If you're already taking into account dietary restrictions, go the extra step, and try making things better for everyone.  A little bit of work goes a very long way.
-
-
-
-
 
 ## Update
 
